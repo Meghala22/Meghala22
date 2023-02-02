@@ -4,6 +4,6 @@ I am Meghala and completed my undergraduation in electronics and communication e
 
 - 🌱 I’m currently learning java
 - 👯 I’m looking to collaborate on taitan
-- 💬 Ask me about pets
+- 💬 Ask me about pets ☺️
 - ⚡ Fun fact: To make my favorite food
 
