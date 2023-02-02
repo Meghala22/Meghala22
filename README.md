@@ -1,6 +1,5 @@
 ### Hi there 👋
-
-
+I am Meghala and completed my electronics and communication engineering
 
 
 - 🌱 I’m currently learning cooking
