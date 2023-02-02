@@ -7,4 +7,4 @@ I am Meghala and completed my undergraduation in electronics and communication e
 - 🤔 I’m looking for help with getting fat
 - 💬 Ask me about pets
 - ⚡ Fun fact: To make my favorite food
--->
+
