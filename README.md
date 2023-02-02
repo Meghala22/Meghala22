@@ -2,9 +2,8 @@
 I am Meghala and completed my undergraduation in electronics and communication engineering
 
 
-- 🌱 I’m currently learning cooking
+- 🌱 I’m currently learning java
 - 👯 I’m looking to collaborate on taitan
-- 🤔 I’m looking for help with getting fat
 - 💬 Ask me about pets
 - ⚡ Fun fact: To make my favorite food
 
